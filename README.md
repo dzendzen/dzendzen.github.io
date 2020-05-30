@@ -1,1 +1,1 @@
-# dzendzen.github.io
+# dzendzen.github.io-meditation-app. 
